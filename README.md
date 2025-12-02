@@ -1,0 +1,2 @@
+# btcnairobi.
+Empowering Bitcoin Adoption 
